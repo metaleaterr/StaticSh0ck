@@ -1,4 +1,10 @@
-## Hi there 👋
+## # meo
+[Atabook](https://angelcake.atabook.org/)   [Strawpage](https://ang3lcake.straw.page)
+
+
+
+
+![image_alt](https://github.com/StaticSh0ck/idk/blob/90c7de19c9dba41023de65d9a544435be467ea30/97602c8032d6f4e57c4cb9797dde21ce.jpg)
 
 <!--
 **StaticSh0ck/StaticSh0ck** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
