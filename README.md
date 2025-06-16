@@ -5,7 +5,7 @@
 [Atabook](https://angelcake.atabook.org/)   
 [Strawpage](https://ang3lcake.straw.page)
 
-I love Green lanterns and Flash is col too
+I love Green lanterns,and Flash is cool too
 ![image_alt](https://github.com/StaticSh0ck/StaticSh0ck/blob/d1268c9e77cc3c6447c012d9cc4a2e234f88f5b4/97602c8032d6f4e57c4cb9797dde21ce.jpg)
 
 Some info about me;
