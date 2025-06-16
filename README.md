@@ -34,7 +34,7 @@ Fandom I am in: Transformers, Superntural, DC, Marvel, Monster high, MLP, The bo
 ___________________________________________________________________________
 
 My kinlistz -   
-[Kins](https://ang3lcake.straw.page/kins)
+[Kinlist](https://ang3lcake.straw.page/kins)
  
  ![image_alt](https://github.com/StaticSh0ck/StaticSh0ck/blob/4f8d446d160b0167330cfcf5c6869e950732a126/Screenshot%202025-06-16%204.02.48%20AM.png)
 
