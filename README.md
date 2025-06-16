@@ -33,7 +33,7 @@ ___________________________________________________________________________
 Fandom I am in: Transformers, Superntural, DC, Marvel, Monster high, MLP, The boys + others
 ___________________________________________________________________________
 
-My kinlistz!  [Kinlist](https://ang3lcake.straw.page/kins)
+My kinlistz!  ![Kinlist](https://ang3lcake.straw.page/kins)
 
  ](https://ang3lcake.straw.page/kins)
  
