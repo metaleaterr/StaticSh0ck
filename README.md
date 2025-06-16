@@ -30,7 +30,10 @@ ADHD/Autism
 
  
 ___________________________________________________________________________
-Fandom I am in: SPN, DC, Marvel, Monster high, MLP, The boys + others
+Fandom I am in: Transformers, Superntural, DC, Marvel, Monster high, MLP, The boys + others
+___________________________________________________________________________
+
+My kinlistz!  [Kinlist]([https://angelcake.atabook.org/](https://ang3lcake.straw.page/kins)  
 
  
  
