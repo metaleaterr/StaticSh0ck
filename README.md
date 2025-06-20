@@ -19,7 +19,7 @@ ADHD/Autism
 
 1. I am an insensitive person, so please be careful with what you say, like sarcastic/NSFW/any comments. I often struggle to tell if you are being serious or not. If you are not a friend of ours, please do not throw "key"/any self-harms or insults. I get triggered easily, and it hurts, and I would think you are being serious about it
 
-2. Respect my boundaries. I feel uncomfortable being shipped as some characters I am cosplaying, and please don't mention such things as Stucky, Destiel, or JayRoy when talking to me. I respect your ships, but it still makes us extremely uncomfortable unless you are a friend who really ships them. I don't mind it ^^.
+2. Respect my boundaries. I feel uncomfortable being shipped as some characters I am cosplaying, and please don't mention such things as Nightcrawler/Pietro MCU, Stucky, Destiel, or JayRoy when talking to me. I respect your ships, but it still makes us extremely uncomfortable unless you are a friend who really ships them. I don't mind it ^^.
 
    3. Please do not compare my OCS to existing characters unless you're a friend. I put a lot of effort into creating them, and I feel like an unoriginal person, and worry that I am copying them.
 
