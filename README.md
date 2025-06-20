@@ -4,6 +4,7 @@
                                                 
 [Atabook](https://angelcake.atabook.org/)   
 [Strawpage](https://ang3lcake.straw.page)
+
 [instagram](https://www.instagram.com/cute.furry.femboy.kisser/)  
 
 
@@ -11,7 +12,7 @@ I love Green lanterns,and Flash is cool too
 ![image_alt](https://github.com/StaticSh0ck/StaticSh0ck/blob/d1268c9e77cc3c6447c012d9cc4a2e234f88f5b4/97602c8032d6f4e57c4cb9797dde21ce.jpg)
 
 Some info about me;
-Hihihih! I'm Mou or Archer. I have no idea how to introduce myself, but I'll try my best. Uh, I'm an introvert, I don't talk much, my English is very horrible, and words would come off. I'm kinda awkward and have social anxiety, so it would take me a while to interact with people. 🫠 Please be patient with me. I'm an artist. I sometimes post my artworks on social media, mostly on Tumblr, and I love Green Lanterns and alien robots. Birthday is on the 23rd November ^_*
+Hihihih! I'm Mou or Archer. I have no idea how to introduce myself, but I'll try my best. Uh, I'm an introvert, I don't talk much, my English is very horrible, and words would come off. I'm kinda awkward, so it would take me a while to interact with people. 🫠 Please be patient with me. I'm an artist. I sometimes post my artworks on social media. I love Green Lanterns and alien robots. Birthday is on the 23rd November ^_*
 
 extra?;
 
