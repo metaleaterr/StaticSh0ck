@@ -2,24 +2,30 @@
 ![StaticSh0ck
 ](https://komarev.com/ghpvc/?username=your-github-username&color=brightgreen)
                                                 
-[Atabook](https://angelcake.atabook.org/)   
-[Strawpage](https://ang3lcake.straw.page)
-
-[instagram](https://www.instagram.com/cute.furry.femboy.kisser/)  
-
+[Atabook](https://angelcake.atabook.org/) ᗢ༘⋆୨୧˚ [Strawpage](https://ang3lcake.straw.page)
 
 I love Green lanterns,and Flash is cool too
 ![image_alt](https://github.com/StaticSh0ck/StaticSh0ck/blob/d1268c9e77cc3c6447c012d9cc4a2e234f88f5b4/97602c8032d6f4e57c4cb9797dde21ce.jpg)
 
+
 Some info about me;
-Hihihih! I'm Mou or Archer. I have no idea how to introduce myself, but I'll try my best. Uh, I'm an introvert, I don't talk much, my English is very horrible, and words would come off. I'm kinda awkward, so it would take me a while to interact with people. 🫠 Please be patient with me. I'm an artist. I sometimes post my artworks on social media. I love Green Lanterns and alien robots. Birthday is on the 23rd November ^_*
+Hihihih! I'm Mou or Archer. I have no idea how to introduce myself, but I'll try my best. I'm an introvert; I don't talk much, and my English is very horrible, so my words often come off. I'm kinda awkward, so it would take me a while to interact with people. 🫠 Please be patient with me. I'm an artist. I sometimes post my artworks on social media. I love Green Lanterns and alien robots. Birthday is on the 23rd November ^_*
 
 extra?;
 
 Puerto rico
 
-ADHD/autism
+ADHD/Autism
 
+1. I am an insensitive person, so please be careful with what you say, like sarcastic/joking/NSFW/any comments. I often struggle to tell if you are being serious or not. If you are not a friend of ours, please do not throw "key"/any self-harms or insults. I get triggered easily, and it hurts, and I would think you are being serious about it. Dont compare my ocs to existent chracters I worked on it and I feel so unorignal
+
+   2.  respect my boundaries. I feel uncomfortable being shipped as some characters I am cosplaying, and please don't mention such as Stucky, Destiel, or JayRoy when talking to me. I respect your ships but it still makes us extremely uncomfortable unless you are a friend who really ships them. I don't mind it ^^.
+   3.  Please do not compare my OCS to existing chracters. I put a lot of effort into creating them, and I feel like an unoriginal, and worry that I am copying them.
+
+4. I block freely, if I find out that any of yall has alternate accounts just to stalk or harass. No matter how hard you try, I will still block you, including your friends. (You know who I'm talking to. *look at @ccherrypie*).
+
+
+   
  ___________________________________________________________________________
  
  ★ If I didn’t reply to any of your messages, it doesn't mean I’m trying to ignore you. There’s a chance I’m AFK, busy creating new ponies, or just bad at responding, and it takes me a while, who knows. Feel free to whisper, and I'll check and reply! ( ˃ ᵕ ˂ )
