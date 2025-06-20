@@ -17,12 +17,13 @@ Puerto rico
 
 ADHD/Autism
 
-1. I am an insensitive person, so please be careful with what you say, like sarcastic/joking/NSFW/any comments. I often struggle to tell if you are being serious or not. If you are not a friend of ours, please do not throw "key"/any self-harms or insults. I get triggered easily, and it hurts, and I would think you are being serious about it. Dont compare my ocs to existent chracters I worked on it and I feel so unorignal
+1. I am an insensitive person, so please be careful with what you say, like sarcastic/joking/NSFW/any comments. I often struggle to tell if you are being serious or not. If you are not a friend of ours, please do not throw "key"/any self-harms or insults. I get triggered easily, and it hurts, and I would think you are being serious about it
 
-   2.  respect my boundaries. I feel uncomfortable being shipped as some characters I am cosplaying, and please don't mention such as Stucky, Destiel, or JayRoy when talking to me. I respect your ships but it still makes us extremely uncomfortable unless you are a friend who really ships them. I don't mind it ^^.
-   3.  Please do not compare my OCS to existing chracters. I put a lot of effort into creating them, and I feel like an unoriginal, and worry that I am copying them.
+2. Respect my boundaries. I feel uncomfortable being shipped as some characters I am cosplaying, and please don't mention such as Stucky, Destiel, or JayRoy when talking to me. I respect your ships, but it still makes us extremely uncomfortable unless you are a friend who really ships them. I don't mind it ^^.
 
-4. I block freely, if I find out that any of yall has alternate accounts just to stalk or harass. No matter how hard you try, I will still block you, including your friends. (You know who I'm talking to. *look at @ccherrypie*).
+3. Please do not compare my OCS to existing characters. I put a lot of effort into creating them, and I feel like an unoriginal person, and worry that I am copying them.
+
+4. I block freely if I find out that any of y'all have alternate accounts just to stalk or harass. No matter how hard you try, I will still block you, including your friends. (You know who I'm talking to. *look at @ccherrypie*).
 
 
    
