@@ -9,22 +9,23 @@ I love Green Lanterns,and Flash is cool too
 
 
 Some info about me;
-Hihihih! I'm Mou or Archer. I have no idea how to introduce myself, but I'll try my best. I'm an introvert; I don't talk much, and my English is very horrible, so my words often come off. I'm kinda awkward, so it would take me a while to interact with people. 🫠 Please be patient with me. I'm an artist. I sometimes post my artworks on social media. I love Green Lanterns and alien robots. Birthday is on the 23rd November ^_*
+Hihihih! I'm Mou or Archer. I have no idea how to introduce myself, but I'll try my best. I'm an introvert; I don't talk much, and my English is very horrible, so my words often come off. I'm kinda awkward, so it would take me a while to interact with people. 🫠 Please be patient with me. I'm an artist. I sometimes post my artworks on social media. I love Green Lanterns and alien robots. My friends are very cool. Birthday is on the 23rd November ^_*
 
 extra?;
-
+Artist
 Puerto rico
-
-ADHD/Autism
+ADHD/Autism Lvl 3 
+Dyslexia
 
 1. I am an insensitive person, so please be careful with what you say, like sarcastic/NSFW/any comments. I often struggle to tell if you are being serious or not. If you are not a friend of ours, please do not throw "key"/any self-harms or insults. I get triggered easily, and it hurts, and I would think you are being serious about it
 
-2. Respect my boundaries. I feel uncomfortable being shipped as some characters I am cosplaying, and please don't mention such things as Nightcrawler/Pietro MCU, Stucky, Destiel, or JayRoy when talking to me. I respect your ships, but it still makes us extremely uncomfortable unless you are a friend who really ships them. I don't mind it ^^.
+2. Please respect my boundaries 
 
 3. I block freely if I find out that any of y'all have alternate accounts just to stalk or harass. (You know who I'm talking to. *looking at you, @ccherrypie*).
 
+4 .  Please keep in mind that I have abandonment issues and others. I'm sorry if I become clingy. If you feel uncomfortable, please let me know.
 
-   
+  
  ___________________________________________________________________________
  
  ★ If I didn’t reply to any of your messages, it doesn't mean I’m trying to ignore you. There’s a chance I’m AFK, busy creating new ponies, or just bad at responding, and it takes me a while, who knows. Feel free to whisper, and I'll check and reply! ( ˃ ᵕ ˂ )
