@@ -9,7 +9,7 @@ I love Green Lanterns,and Flash is cool too
 
 
 Some info about me;
-Hihihih! I'm Mou or Archer. I have no idea how to introduce myself, but I'll try my best. I'm an introvert; I don't talk much, and my English is very horrible, so my words often come off. I'm kinda awkward, so it would take me a while to interact with people. 🫠 Please be patient with me. I'm an artist. I sometimes post my artworks on social media. I love Green Lanterns and alien robots. My friends are very cool. Birthday is on the 23rd November ^_*
+Hihihih! I'm Mou or Archer. I have no idea how to introduce myself, but I'll try my best. I'm an introvert; I don't talk much, and my English is very horrible, so my words often come off. I'm kinda awkward and have social anxiety, so it would take me a while to interact with people. 🫠 Please be patient with me. I'm an artist. I sometimes post my artworks on social media. I love Green Lanterns and alien robots. My friends are very cool. Birthday is on the 23rd November ^_*
 
 extra?;
 Artist
