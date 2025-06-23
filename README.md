@@ -21,9 +21,7 @@ ADHD/Autism
 
 2. Respect my boundaries. I feel uncomfortable being shipped as some characters I am cosplaying, and please don't mention such things as Nightcrawler/Pietro MCU, Stucky, Destiel, or JayRoy when talking to me. I respect your ships, but it still makes us extremely uncomfortable unless you are a friend who really ships them. I don't mind it ^^.
 
-   3. Please do not compare my OCS to existing characters unless you're a friend. I put a lot of effort into creating them, and I feel like an unoriginal person, and worry that I am copying them.
-
-4. I block freely if I find out that any of y'all have alternate accounts just to stalk or harass. No matter how hard you try, I will still block you, including your friends. (You know who I'm talking to. *look at @ccherrypie*).
+3. I block freely if I find out that any of y'all have alternate accounts just to stalk or harass. (You know who I'm talking to. *looking at you, @ccherrypie*).
 
 
    
