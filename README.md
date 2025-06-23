@@ -14,7 +14,7 @@ Hihihih! I'm Mou or Archer. I have no idea how to introduce myself, but I'll try
 extra?;
 Artist
 Puerto rico
-ADHD/Autism Lvl 3 
+ADHD/Autism Lvl 3 . Don't come after me, try a fake claim that I don't have it. yes, fakers may sucks.
 Dyslexia
 
 1. I am an insensitive person, so please be careful with what you say, like sarcastic/NSFW/any comments. I often struggle to tell if you are being serious or not. If you are not a friend of ours, please do not throw "key"/any self-harms or insults. I get triggered easily, and it hurts, and I would think you are being serious about it
@@ -23,7 +23,7 @@ Dyslexia
 
 3. I block freely if I find out that any of y'all have alternate accounts just to stalk or harass. (You know who I'm talking to. *looking at you, @ccherrypie*).
 
-4 .  Please keep in mind that I have abandonment issues and others. I'm sorry if I become clingy. If you feel uncomfortable, please let me know.
+4 .  Please keep in mind that I have abandonment issues and others. I'm sorry if I become clingyy. If you feel uncomfortable, please let me know.
 
   
  ___________________________________________________________________________
