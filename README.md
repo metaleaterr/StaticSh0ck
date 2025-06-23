@@ -13,8 +13,11 @@ Hihihih! I'm Mou or Archer. I have no idea how to introduce myself, but I'll try
 
 extra?;
 Artist
+
 Puerto rico
+
 ADHD/Autism Lvl 3 . Don't come after me, try fake claim that I don't have it. yes, fakers may sucks.
+
 Dyslexia
 
 1. I am an insensitive person, so please be careful with what you say, like sarcastic/NSFW/any comments. I often struggle to tell if you are being serious or not. If you are not a friend of ours, please do not throw "key"/any self-harms or insults. I get triggered easily, and it hurts, and I would think you are being serious about it
