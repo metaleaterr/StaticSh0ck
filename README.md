@@ -1,7 +1,8 @@
 ## # meo
+ I don't know, I named my user after a dessert I liked. I'm not very good at making up names.  
+
 ![StaticSh0ck
-](https://komarev.com/ghpvc/?username=your-github-username&color=brightgreen)
-                                                
+](https://komarev.com/ghpvc/?username=your-github-username&color=brightgreen)                                            
 [Atabook](https://angelcake.atabook.org/)                [Strawpage](https://ang3lcake.straw.page)
 
 I love Green Lanterns,and Flash is cool too
@@ -33,7 +34,6 @@ Dyslexia
  
  ★ If I didn’t reply to any of your messages, it doesn't mean I’m trying to ignore you. There’s a chance I’m AFK, busy creating new ponies, or just bad at responding, and it takes me a while, who knows. Feel free to whisper, and I'll check and reply! ( ˃ ᵕ ˂ )
 
-★ Take inspiration from my pony? Sure, idc. It’s not like it’s hurting anyone.
 
 
 ![image_alt](https://github.com/StaticSh0ck/StaticSh0ck/blob/58d93dbd6b55d6a11a20ad12eba3141e75a66ad3/razer-red-lantern.gif) ![image alt](https://github.com/StaticSh0ck/StaticSh0ck/blob/main/tumblr_637b15c1503a5f7c36da23587d3b5fd5_76ef5aa0_500.gif?raw=true)
